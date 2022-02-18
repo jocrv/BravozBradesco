@@ -11,10 +11,10 @@ HTTP Live Streaming (HLS) 1:
 Update:
 
 
-More +2.394 Millions Views 
+More +2,394 Millios Views 
 
 
-4.19 Millions Subscribers on Bradesco Youtube Channel
+And 4,19 Millions Subscribers on Bradesco Youtube Channel
 
 
 Available: https://www.youtube.com/watch?v=VHclEcO_vJs
@@ -31,10 +31,10 @@ HTTP Live Streaming (HLS) 2: Brazilian Streaming Nov. 20-2020.
 Update: 
 
 
-More +2.546 Millions Views 
+More +2,546 Millions Views 
 
 
-And 4.19 Millions Subscribers on Bradesco Youtube Channel
+And 4,19 Millions Subscribers on Bradesco Youtube Channel
 
 
 Available: https://www.youtube.com/watch?v=uyEenNX31zE&t=4151s
@@ -46,10 +46,10 @@ Available: https://www.youtube.com/watch?v=uyEenNX31zE&t=4151s
 HTTP Live Streaming (HLS) 3: The singer Gilberto Gil and the actress and singer Dhu Moraes in Sep. 20- 2020.
 
 
-More 3.850 Millions Views 
+More +3,850 Millions Views 
 
 
-And 4.19 Millions Subscribers on Bradesco Youtube Channel
+And 4,19 Millions Subscribers on Bradesco Youtube Channel
 
 
 Available: https://www.youtube.com/watch?v=XwuZVUspwzk
