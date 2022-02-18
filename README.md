@@ -11,7 +11,7 @@ HTTP Live Streaming (HLS) 1:
 Update:
 
 
-More +2,394 Millios Views 
+More +2,394 Millions Views 
 
 
 And 4,19 Millions Subscribers on Bradesco Youtube Channel
